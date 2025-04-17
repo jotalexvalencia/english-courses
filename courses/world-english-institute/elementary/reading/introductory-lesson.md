@@ -143,6 +143,7 @@
 
 `Nau, rid de sto-ri ov de san` `hu left hom. Dis is de werlds` `most fei-mos short sto-ri.` `It is faund in de fif-tinth chap-ter` `ov de gos-pel ov Luk, ver-ses i-le-ven` `thru ther-ti-tu (Luk 15:11-32).` `It is kwo-ted from de I-zi-tu-Rid` `Ver-shon ov de Bai-bol.` `Af-ter iu rid de sto-ri,` `pliz an-ser de kwes-chons` `on de An-ser Shit.`
 
+
 ## **Story of the Son Who Left Home**
 
 `STO-RI OV DE SAN HU LEFT HOM`
@@ -153,7 +154,7 @@
 
 **The younger son gathered up all that he had and left. He traveled far away to another country. There, he foolishly wasted his money. He spent everything that he had. Soon after that, the land became very dry, and there was no rain. There was not enough food to eat anywhere in the country. The son was hungry and needed money. So he went and got a job with one of the people of that country. The man sent the son into the field to feed pigs. The son was so hungry that he wanted to eat the food that the pigs were eating. But no person gave him anything.**
 
-`De yang-er san ga-derd ap` `ol dat hi had and left.` `Hi tra-veld far a-wei` `tu a-na-der kan-tri. Der,` `hi fu-lish-li weis-ted his ma-ni.` `Hi spent ev-ri-thing dat hi had.` `Sun af-ter dat, de land bi-keim` `ve-ri drai, and der was no rein.` `Der was not i-naf fud tu it` `e-ni-wer in de kan-tri.` `De san was han-gri and ni-ded ma-ni.` `So hi went and got a job` `wit wan ov de pi-pol ov dat kan-tri.` `De man sent de san in-tu de fild` `tu fid pigs. De san was so han-gri` `dat hi wan-ted tu it de fud` `dat de pigs wer i-ting.` `Bat no per-son geiv him e-ni-thing.`
+`De yang-er san ga-derd ap` `ol dat hi had and left.` `Hi tra-veld far a-wei` `tu a-na-der kan-tri. Der,` `hi fu-lish-li weis-ted his ma-ni.` `Hi spent ev-ri-thing dat hi had.` `Sun af-ter dat, de land bi-keim` `ve-ri drai, and der was no rein.` `Der was not i-naf fud tu it` `e-ni-wer in de kan-tri.` `De san was han-gri and ni-ded ma-ni.` `So hi went and got a job` `wit wan ov de pi-pol ov dat kan-tri.` `De man sent de san in-tu de fild` `tu fid pigs` **(alimentar cerdos)**`. De san was so han-gri` `dat hi wan-ted tu it de fud` `dat de pigs wer i-ting.` `Bat no per-son geiv him e-ni-thing.`
 
 **The boy realized that he had been very foolish. He thought, "All of my father's servants have plenty of food. But I am here, almost dead, because I have nothing to eat. I will leave and go to my father. I will say to him, "Father, I have sinned against God and have done wrong to you. I am not good enough to be called your son. But let me be like one of your servants."**
 
@@ -165,10 +166,40 @@
 
 **"But the father said to his servants, 'Hurry! Bring the best clothes and dress him. Also, put a ring on his finger and good shoes on his feet. Bring the fat calf. We will kill it and have plenty to eat. Then, we can have a party. My son was dead, but now he is alive again! He was lost, but now he is found!" So they began to have a party.**
 
-`"Bat de fa-der sed tu his ser-vants,` `'Ha-ri! Bring de best kloths` `and dres him. Ol-so, put a ring` `on his fing-er and gud shus` `on his fit. Bring de fat kaf.` `Wi wil kil it and hav plen-ti tu it.` `Den, wi kan hav a par-ti.` `Mai san was ded, bat nau` `hi is a-laiv a-gen! Hi was lost,` `bat nau hi is faund!"` `So dei bi-gan tu hav a par-ti.`
+`"Bat de fa-der sed tu his ser-vants,` `'Ha-ri! Bring de best kloths` `and dres him. Ol-so, put a ring` `on his fing-er and gud shus` `on his fit. Bring de fat kaf` **(ternero gordo)**`. Wi wil kil it and hav plen-ti tu it.` `Den, wi kan hav a par-ti.` `Mai san was ded, bat nau` `hi is a-laiv a-gen! Hi was lost,` `bat nau hi is faund!"` `So dei bi-gan tu hav a par-ti.`
 
 **The older son was in the field. He came closer to the house. He heard the sound of music and dancing. So the older son called to one of the servant boys and asked, 'What does all this mean?' The servant said, "Your brother has come back. Your father killed the fat calf to eat. Your father is happy because your brother came home safely."**
 
 `De ol-der san was in de fild.` `Hi keim klo-ser tu de haus.` `Hi herd de saund ov miu-zik and dan-sing.` `So de ol-der san kold tu wan` `ov de ser-vant bois and askt,` `'Wat daz ol dis min?'` `De ser-vant sed, "Yor bra-der has kam bak.` `Yor fa-der kild de fat kaf tu it.` `Yor fa-der is ha-pi bi-koz` `yor bra-der keim hom seif-li."`
 
-**The older son was angry and would not enter the party. So his father went out to ask him to come in. The son said to his father, "I have served you like a slave for
+**The older son was angry and would not enter the party. So his father went out to ask him to come in. The son said to his father, "I have served you like a slave for many years. I have always obeyed your commands. But you never even killed a goat for me. You never gave a party for me and my friends. But your other son has wasted all your money on prostitutes. Then, he comes home, and you kill the fat calf for him!"**
+
+`De ol-der san was ang-gri` `and wud not en-ter de par-ti.` `So his fa-der went aut` `tu ask him tu kam in.` `De san sed tu his fa-der,` `"Ai hav servd iu laik a sleiv` `for me-ni yirs. Ai hav ol-weis` `o-beid yor ko-mands. Bat iu` `ne-ver i-ven kild a got for mi.` `Iu ne-ver geiv a par-ti` `for mi and mai frends.` `Bat yor a-der san has weis-ted` `ol yor ma-ni on pros-ti-tiuts` **(prostitutas)**`. Den, hi kams hom,` `and iu kil de fat kaf for him!"`
+
+**But the father said to him, "Son, you are always with me. All that I have is yours, too. We must be happy and have a party because your brother was dead, and now he is alive. He was lost, but now he is found."'**
+
+`Bat de fa-der sed tu him,` `"San, iu ar ol-weis wit mi.` `Ol dat Ai hav is iors, tu.` `Wi mast bi ha-pi and hav a par-ti` `bi-koz yor bra-der was ded,` `and nau hi is a-laiv.` `Hi was lost, bat nau hi is faund."'`
+
+## **Application**
+
+`A-PLI-KEI-SHON` **(Aplicación)**
+
+**This famous story teaches us some important lessons about God and about ourselves.**
+
+`Dis fei-mos sto-ri ti-ches as` `sam im-por-tant le-sons a-baut God` `and a-baut aur-selvs.`
+
+**1. People seek happiness in the wrong places. The younger son thought happiness was getting away from his father's control and being free to have fun. In the end, he was miserable because he was looking for happiness in the wrong places. People in today's world are making the same mistake. They are seeking happiness in money, drugs, alcohol, sex, thrills, education, power, fame, and beauty. But selfish living does not lead to joy. It leads to suffering and shame.**
+
+`wan. Pi-pol sik ha-pi-nes` `in de rong plei-ses. De yang-er san` `thot ha-pi-nes was ge-ting a-wei` `from his fa-ders kon-trol` `and bi-ing fri tu hav fan.` `In de end, hi was mi-se-ra-bol` `bi-koz hi was lu-king for ha-pi-nes` `in de rong plei-ses. Pi-pol` `in tu-deis werld ar mei-king` `de seim mis-teik. Dei ar si-king` `ha-pi-nes in ma-ni, drags, al-ko-hol,` `seks, thrils, e-diu-kei-shon, pau-er, feim, and biu-ti.` `Bat sel-fish li-ving daz not lid` `tu joi. It lids tu sa-fe-ring and sheim.`
+
+**2. God loves us and does not want us to be ruined by evil. The younger son represents any person who turns away from God to seek fame, fortune, and pleasure. The father in the story represents God. When the younger son returned home, the father ran to meet him, hugged him, and kissed him tenderly. That means that God loves us. When we turn away from evil and come to God, he forgives us, welcomes us, and restores our dignity and honor.**
+
+`tu. God lavs as and daz not` `want as tu bi ru-ind bai i-vil.` `De yang-er san re-pre-sents e-ni per-son` `hu terns a-wei from God` `tu sik feim, for-chun, and ple-sher.` `De fa-der in de sto-ri` `re-pre-sents God. Wen de yang-er san` `ri-ternd hom, de fa-der ran` `tu mit him, hagd him,` `and kist him ten-der-li.` `Dat mins dat God lavs as.` `Wen wi tern a-wei from i-vil` `and kam tu God, hi for-givs as,` `wel-kams as, and res-tors` `aur dig-ni-ti and o-nor.`
+
+## **Comment**
+
+`KO-MENT` **(Comentario)**
+
+**In this Introductory Lesson, we have learned something about English, about ourselves, and about God. We sincerely hope you have enjoyed the study.**
+
+`In dis In-tro-dak-to-ri Le-son,` `wi hav lernd sam-thing a-baut Ing-glish,` `a-baut aur-selvs, and a-baut God.` `Wi sin-sir-li hop iu hav en-joid de sta-di.`
